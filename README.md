@@ -1,6 +1,6 @@
 # 牛牛影院 最新地址发布 
 ## 导 航 永 久 域 名HttpS://niuniuyingshi.com
-## ⭐️👉访问地址：https://www.232tom.com
+## ⭐️👉访问地址：http://www.niuys10.com
 ## ⭐️👉备用地址：http://niuys1.xyz  至  http://niuys22.xyz
 ## ⭐️👉 ( 备用地址前缀加任意随机数字，也可正常进入观影.如：http://niuniandaji.niuys8.xyz)
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
