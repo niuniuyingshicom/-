@@ -1,7 +1,7 @@
-# 汤姆影院 最新地址发布 
-## 导 航 永 久 域 名HttpS://avtom.vip
+# 牛牛影院 最新地址发布 
+## 导 航 永 久 域 名HttpS://niuniuyingshi.com
 ##⭐️👉访问地址：https://www.232tom.com
-##⭐️👉备用导航：https://www.TMYY.TV
+##⭐️👉备用地址：http://niuyx1.xyz-http://niuyx22.xyz
 ## ⭐️ 👉 备用导航 ：HttpS://TMYY.TV
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️  
