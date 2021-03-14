@@ -2,7 +2,7 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ## ⭐️👉访问地址：http://www.niuys10.com
 ## ⭐️👉备用地址：http://niuys1.xyz  至  http://niuys22.xyz
-## ⭐️👉 ( 备用地址前缀加任意随机数字，也可正常进入观影！如：http://xxxxx.niuys8.xyz)
+## ⭐️👉 ( 备用地址前缀加任意随机数字，也可正常进入观影！如：http://xxxxx.niuys22.xyz)
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
 ##
