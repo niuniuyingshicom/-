@@ -15,6 +15,6 @@
 ## 发送任意📧邮件：niuniuyingshi@gmail.com 获取最新域名
 ##
 ## **移动屏蔽本站，请勿用移动网络访问**
-## 如果无法访问本站，请使用猎豹加速器进行访问。https://lb.ckes123.cc/index/download.html(或者使用其他翻墙软件访问本站)
+## 如果无法访问本站，请使用猎豹加速器进行访问。https://lb.ckes123.cc/index/download.html  (或者使用其他翻墙软件访问本站)
 
 
