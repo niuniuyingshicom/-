@@ -9,7 +9,7 @@
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ##
-## ⭐️👉备用地址：后缀#.com#更改成#.pw#/#.xyz#/#.work#/#.club#
+## ⭐️👉备用地址：后缀#.com#更改成##.pw##/#.xyz#/#.work#/#.club#
 ##
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
