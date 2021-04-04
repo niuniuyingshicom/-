@@ -11,9 +11,9 @@
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ##
-## ⭐️👉备用地址：将域名后缀.com，更改成.pw➖.xyz➖.work➖.club
+## ⭐️👉备用地址：将域名后缀 .com，更改成.pw ▫ .xyz ▫ .work ▫ .club
 ##
-## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
+## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
 ##
 ## 1.使用电脑的用户，请按键盘上的CTRL+D进行收藏
