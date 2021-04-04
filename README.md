@@ -1,7 +1,7 @@
 # 牛牛影院 最新地址发布 
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
-## ⭐️👉访问地址：
+## ⭐️👇访问地址：
 ## ⭐️👉HttpS://n-iuniuyingshi.com 
 ## ⭐️👉HttpS://ni-uniuyingshi.com
 ## ⭐️👉HttpS://niu-niuyingshi.com
@@ -11,7 +11,7 @@
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ##
-## ⭐️👉备用地址：将域名后缀.com，更改成.pw/.xyz/.work/.club
+## ⭐️👉备用地址：将域名后缀.com，更改成.pw➖.xyz➖.work➖.club
 ##
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
