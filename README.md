@@ -10,6 +10,7 @@
 ## ⭐️👉HttpS://niuniu-yingshi.com
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
+## ⭐️👉HttpS://niuniuyin-gshi.com
 ##
 ## ⭐️👉备用地址：将域名后缀 .com，更改成 .pw ◼ .xyz ◼ .work ◼ .club
 ##
