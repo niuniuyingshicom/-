@@ -2,14 +2,14 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
 ## ⭐️👇访问地址：
+## ⭐️👉HttpS://niuniuyingsh-i.com
+## ⭐️👉HttpS://niuniuyings-hi.com
 ## ⭐️👉HttpS://niuniuyin-gshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niuniu-yingshi.com
 ## ⭐️👉HttpS://niuni-uyingshi.com
 ## ⭐️👉HttpS://niun-iuyingshi.com
-## ⭐️👉HttpS://niu-niuyingshi.com
-## ⭐️👉HttpS://ni-uniuyingshi.com
 ## ⭐️👉HttpS://n-iuniuyingshi.com 
 ##
 ## ⭐️👉备用地址：将域名后缀 .com，更改成 .pw ◼ .xyz ◼ .work ◼ .club
