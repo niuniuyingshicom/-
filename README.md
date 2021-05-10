@@ -7,7 +7,8 @@
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ## ⭐️👉HttpS://niuniuy-ingshi.com
 ## ⭐️👉HttpS://niun-iuyingshi.com
-## ⭐️👉HttpS://n-iuniuyingshi.com 
+## ⭐️👉HttpS://n-iuniuyingshi.com
+## ⭐️👉HttpS://niuniuying-shi.com 
 ## ⭐️👉HttpS://niuniuyin-gshi.com
 ## ⭐️👉HttpS://niuni-uyingshi.com
 ## ⭐️👉HttpS://niuniu-yingshi.com
