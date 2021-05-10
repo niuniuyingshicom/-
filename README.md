@@ -4,13 +4,13 @@
 ## ⭐️👇访问地址：
 ## ⭐️👉HttpS://niuniuyingsh-i.com
 ## ⭐️👉HttpS://niuniuyings-hi.com
-## ⭐️👉HttpS://niuniuyin-gshi.com
 ## ⭐️👉HttpS://niuniuyi-ngshi.com
 ## ⭐️👉HttpS://niuniuy-ingshi.com
-## ⭐️👉HttpS://niuniu-yingshi.com
-## ⭐️👉HttpS://niuni-uyingshi.com
 ## ⭐️👉HttpS://niun-iuyingshi.com
 ## ⭐️👉HttpS://n-iuniuyingshi.com 
+## ⭐️👉HttpS://niuniuyin-gshi.com
+## ⭐️👉HttpS://niuni-uyingshi.com
+## ⭐️👉HttpS://niuniu-yingshi.com
 ##
 ## ⭐️👉备用地址：将域名后缀 .com，更改成 .pw ◼ .xyz ◼ .work ◼ .club
 ##
