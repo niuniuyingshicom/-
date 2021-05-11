@@ -13,8 +13,9 @@
 ## ⭐️👉HttpS://niuniu-yingshi.com
 ## ⭐️👉HttpS://niuniuyingsh-i.com
 ##
-## ⭐️👉备用地址：nnys1.work  至 nnys100.work  (数字1-100多可以进入)
-##
+## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys100.work 
+## (数字1-100多可以进入，移动端用户选择1-10的线路！！！)
+## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
 ##
