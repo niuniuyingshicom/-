@@ -2,7 +2,6 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
 ## ⭐️👇访问地址：
-## ⭐️👉HttpS://niuniuyings-hi.com
 ## ⭐️👉HttpS://niun-iuyingshi.com
 ## ⭐️👉HttpS://niuniuying-shi.com
 ## ⭐️👉HttpS://n-iuniuyingshi.com
