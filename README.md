@@ -2,6 +2,7 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
 ## 访问地址：
+⭐HttpS://nnys188.work
 ## HttpS://nnys188.work
 ## HttpS://nnys88.work
 ## HttpS://nnys180.work
