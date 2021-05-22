@@ -7,7 +7,7 @@
 ## HttpS://nnys344.work
 ## HttpS://nnys305.work
 ##
-## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys300.work 
+## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys350.work 
 ## (数字1-100多可以进入，移动端用户选择1-10的线路！！！)
 ## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
