@@ -2,10 +2,10 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
 ## 访问地址：
-niun-iuyingshi.com
-niuniuying-shi.com
-n-iuniuyingshi.com
-niuniuy-ingshi.com
+##HttpS://niun-iuyingshi.com
+##HttpS://niuniuying-shi.com
+##HttpS://n-iuniuyingshi.com
+##HttpS://niuniuy-ingshi.com
 ##
 ## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys350.work 
 ## (数字1-100多可以进入，移动端用户选择1-10的线路！！！)
