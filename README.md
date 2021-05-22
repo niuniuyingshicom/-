@@ -2,13 +2,12 @@
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
 ##
 ## 访问地址：
-## HttpS://nnys188.work
-## HttpS://nnys88.work
-## HttpS://nnys180.work
-## HttpS://nnys18.work
-## HttpS://nnys128.work
+## HttpS://nnys230.work
+## HttpS://nnys355.work
+## HttpS://nnys344.work
+## HttpS://nnys305.work
 ##
-## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys200.work 
+## ⭐️👉备用地址：HttpS://nnys1.work  至 HttpS://nnys300.work 
 ## (数字1-100多可以进入，移动端用户选择1-10的线路！！！)
 ## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
@@ -25,6 +24,6 @@
 ## **移动屏蔽本站，请勿用移动网络访问**
 ## 如果无法访问本站，请使用猎豹加速器进行访问。https://lb.ckes123.cc/index/download.html  (或者使用其他翻墙软件访问本站)
 ##
-## 商务合作：https://t.me/niuniuyingshi    （招商暂满，现只接受广告位预订，联盟勿扰！）
+
 
 
