@@ -5,7 +5,6 @@
 ## 访问地址(移动用户多试几次)：
 ## HttpS://niun-iuyingshi.com
 ## HttpS://niuniuying-shi.com
-## HttpS://n-iuniuyingshi.com
 ## HttpS://niuniuy-ingshi.com
 ##
 ## ⭐️👉备用地址：Http://nnys1.work  至 Http://nnys600.work 
