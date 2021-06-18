@@ -1,13 +1,12 @@
 # 牛牛影院 最新地址发布 
 ## 导 航 永 久 域 名：HttpS://niuniuyingshi.com
-## 商务合作：niuniuyingshi@gmail.com
 
 ## 访问地址(移动用户多试几次)：
 ## HttpS://niuniuying-shi.com
 ## HttpS://niuniuy-ingshi.com
 ##
 ## ⭐️👉备用地址：Http://nnys1.work  至 Http://nnys800.work 
-## (数字1-700多可以进入，移动端用户选择越靠后的线路！！！)
+## (数字1-800多可以进入，移动端用户选择越靠后的线路！！！)
 ## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
