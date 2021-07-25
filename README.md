@@ -2,15 +2,15 @@
 ## 导 航 永 久 域 名：Http://niuniuyingshi.com
 
 ## 访问地址(移动用户多试几次)：
-## Http://1nnys.com
+## Http://1nnys.com (移动屏蔽)
 ## Http://2nnys.com
 ## Http://3nnys.com
 ## Http://4nnys.com
 ## Http://5nnys.com
 ## Http://6nnys.com
 ## Http://7nnys.com
-## Http://8nnys.com
-## Http://9nnys.com
+## Http://8nnys.com (移动屏蔽)
+## Http://9nnys.com (移动屏蔽)
 
 ##
 ## ⭐️👉备用地址：Http://1nnys.com  至 Http://109nnys.com
