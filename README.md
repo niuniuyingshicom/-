@@ -1,6 +1,6 @@
 # 牛牛影院 最新地址发布 
 ## 导 航 永 久 域 名：Http://niuniuyingshi.cc
-## 导 航 永 久 域 名：Http://niuniuyingshi.com (海外)
+## 导 航 永 久 域 名：Http://niuniuyingshi.com (海外用户)
 
 ## 访问地址(移动用户多试几次)：
 ## Http://1nnys.com (移动屏蔽)
