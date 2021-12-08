@@ -3,8 +3,7 @@
 ## 导 航 永 久 域 名：Http://niuniuyingshi.com (海外用户)
 
 ## 访问地址(移动用户多试几次)：
-## Http://niuniuyingshi1.cc
-## Http://niuniuyingshi2.cc
+
 ## Http://niuniuyingshi3.cc
 ## Http://niuniuyingshi4.cc
 ## Http://niuniuyingshi5.cc
