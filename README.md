@@ -3,12 +3,12 @@
 ## 导 航 永 久 域 名：Http://niuniuyingshi.com (海外用户)
 
 ## 访问地址(移动用户多试几次)：
-## Http://niuniuyingshi1.cc
-## Http://niuniuyingshi2.cc
-## Http://niuniuyingshi3.cc
-## Http://niuniuyingshi4.cc (移动推荐)
-## Http://niuniuyingshi5.cc (移动推荐)
-## Http://niuniuyingshi6.cc
+## Http://niuniuyingshi1.vip:18888
+## Http://niuniuyingshi2.vip:18888
+## Http://niuniuyingshi3.vip:18888
+## Http://niuniuyingshi4.vip:18888
+## Http://niuniuyingshi5.vip:18888
+## Http://niuniuyingshi6.vip:18888
 
 ##
 ## ⭐️👉备用地址：Http://1nnys.com  至 Http://109nnys.com
