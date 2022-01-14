@@ -1,5 +1,5 @@
 # 牛牛影院 最新地址发布 
-## 导 航 永 久 域 名：Http://niuniuyingshi.cc
+## 导 航 永 久 域 名：Http://niuniuyingshi.vip
 ## 导 航 永 久 域 名：Http://niuniuyingshi.com (海外用户)
 
 ## 访问地址(移动用户多试几次)：
@@ -10,9 +10,7 @@
 ## Http://niuniuyingshi5.vip:18888
 ## Http://niuniuyingshi6.vip:18888
 
-##
-## ⭐️👉备用地址：Http://1nnys.com  至 Http://109nnys.com
-## (数字1-109多可以进入，移动端用户都尝试几个域名！！！)
+
 ## 
 ## ‼️‼️直接点击或长按复制到浏览器里面访问以上网址‼️‼️ 
 ##
